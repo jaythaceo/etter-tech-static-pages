@@ -1,0 +1,1 @@
+# etter-tech-static-pages
